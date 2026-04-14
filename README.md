@@ -1,4 +1,4 @@
-![interlude](https://github.com/user-attachments/assets/76e1e1aa-cd81-4db9-98fd-706e67931c77)q onda soy lucio carrara, mi legajo es 233.761-7
+q onda soy lucio carrara, mi legajo es 233.761-7
 en mi día a día me gusta hacer muchas cosas aunque la facu me drena bastante... igual siempre me hago el espacio para distenderme.
 
 algunos de mis hobbies son:
