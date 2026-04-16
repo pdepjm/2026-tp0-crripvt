@@ -1,5 +1,6 @@
 <h1>Intro</h1>
 q onda soy lucio carrara, mi legajo es 233.761-7
+
 en mi día a día me gusta hacer muchas cosas aunque la facu me drena bastante... igual siempre me hago el espacio para distenderme.
 
 ### Algunos de mis hobbies son:
